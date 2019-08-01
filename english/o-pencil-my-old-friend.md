@@ -16,5 +16,5 @@ But ... not too much though! We obviously don't want your life to be too short-l
 
 ---
 
-Berlin<br />
-May, 2015
+Place: Berlin<br />
+Date: May, 2015
