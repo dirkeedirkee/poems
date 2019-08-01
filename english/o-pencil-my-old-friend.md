@@ -1,5 +1,5 @@
-O Pencil, My Old Friend
-Berlin (May 2015)
+# O Pencil, My Old Friend
+### Berlin (May 2015)
 
 --
 
@@ -13,3 +13,4 @@ You are still simple and easy going and have pretty much remained solid over the
 
 My wish is to roam with you more the paths of poetry, enjoy writing more, but not too much, just so that your life is not too short-lived.
 
+D
