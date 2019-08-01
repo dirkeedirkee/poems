@@ -1,7 +1,5 @@
 # O Pencil, My Old Friend
-### Berlin (May 2015)
-
---
+## Berlin (May 2015)
 
 It’s been a while since you've travelled the empty streets of my notebook.
 
