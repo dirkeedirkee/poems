@@ -37,5 +37,8 @@ hy was hier, met groot hart en prag.
 
 --- 
 
-6 Maart 2016<br />
-Berlin, Tempelhof
+Place: Berlin, Tempelhof<br />
+Date: Maart, 2016
+
+
+
