@@ -20,7 +20,7 @@ die heerlikste geur van braaivleis soet.
 Ek raak nostalgies oor die rooi grond, bokke wat blêr, en die son wat gloei<br />
 die wegsteek witblits kannetjie wat die hare op enige tanne sal kan skroei.
 
-Nagstilte, verskietende stêre, OuBruinSkoene, verjaarsdag vier<br />
+Nagstilte, verskietende sterre, OuBruinSkoene, verjaarsdag vier<br />
 Staaltjies wat swerf in sirkels rondom een groot vuur !
 
 En eendag as die sagste son-sak my kom haal<br />
