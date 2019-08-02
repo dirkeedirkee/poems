@@ -24,5 +24,5 @@ ons sagte hand wat graag 'n belangstelling in swaeltjies kon neem<br />
 
 ---
 
-Plek: Edinburgh<br />
+Plek: Edinburgh / Berlyn<br />
 Datum: Julie, 2018
